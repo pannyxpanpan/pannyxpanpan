@@ -9,4 +9,5 @@ I like the long long holiday... or les grandes grandes vacanes,, IDK PLS INT-
 ------
   SORRY IF IM NOT TOO MUCH IN THE 18 SERV.. you may ask- cuz.. yeah i just feel more comfortable with my friends on safe serv ^^
       i can be maybe at : OSC AREA    *with friends* TF2 area... or idek where you can find *me*
-![tumblr_462b38766dc3d2262cb71ca9c34ba20b_4bb6769b_1280](https://github.com/user-attachments/assets/d4dd4bcf-55ef-439f-aeec-cca78fb4f208)
+
+![tumblr_b4522f989140ee410cc01922bf8a6282_e7b209df_1280](https://github.com/user-attachments/assets/51fdabba-3147-4712-a821-fc3194c3f069)
